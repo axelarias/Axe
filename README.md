@@ -1,7 +1,7 @@
 walking up the hill
 on a sunny day
 looking all around
-both ways to make sure im safe
+both directions to make sure im safe
 on my way 
-to play basketball
-to bust some kids
+to play soccer
+to bust some adults
